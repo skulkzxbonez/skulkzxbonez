@@ -1,0 +1,2 @@
+- Hello! I'm Skully :)
+- This is all absolutely new to me despite any recent interest I might have shown for it. I'm hoping to get better with time!
